@@ -1,2 +1,2 @@
 ai..ml...
-badmintion :)
+badminton :)
